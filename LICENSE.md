@@ -1,4 +1,4 @@
-
+updated Affinity Designer for macOS Automation | AI upscaling + layer styles offers the most advanced Affinity Designer for macOS automation, with AI upscaling and layer styles.
 
 
 
